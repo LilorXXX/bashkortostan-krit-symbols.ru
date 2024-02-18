@@ -1,0 +1,1 @@
+# bashkortostan-krit-symbols.ru
